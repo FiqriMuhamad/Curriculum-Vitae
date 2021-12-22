@@ -1,2 +1,0 @@
-# Curriculum-Vitae
-Curriculum Vitae
